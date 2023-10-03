@@ -25,4 +25,4 @@ Known on internet as **Pavan**
 
 ## Email Me :e-mail:
 
-[<img target="_blank" src="https://img.icons8.com/bubbles/100/000000/secured-letter.png" title="Mail me">](mailto:yogeshnile.work4u@gmail.com)
+[<img target="_blank" src="https://img.icons8.com/bubbles/100/000000/secured-letter.png" title="Mail me">](mailto:paavnpuli333@gmail.com)
